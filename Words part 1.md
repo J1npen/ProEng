@@ -1,20 +1,20 @@
-###Vibe  
+### Vibe  
 a emotional state or atmosphere
 
-###Attempt to  
+### Attempt to  
 Want to;try to
 
-###significant amount of  
+### significant amount of  
 A lot of 
 
-###fraught with challenges/dangers  
+### fraught with challenges/dangers  
 Full of challenges/dangers 
 
-###be alarmed  
+### be alarmed  
 be surprised
 
-###encounter something bad   
+### encounter something bad   
 find something bad
 
-###Therefore   
+### Therefore   
 So
