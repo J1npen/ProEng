@@ -23,11 +23,9 @@
 		
 ### quite a few
 相当多
-  
-  
+
 ### in the words of Martin Luther.Here i stand.i can do no more  
-  
-  
+
 ### one fell swoop
 顷刻间
 　　
